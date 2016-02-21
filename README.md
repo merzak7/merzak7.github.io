@@ -1,2 +1,1 @@
-# About me :
-merzak7.github.io
+# merzak7.github.io

@@ -1,1 +1,3 @@
-# [Merzak7.github.io](Merzak7.github.io)
+# Merzak Seven
+
+> \> [My personal profile](https://merzak7.github.io) <
